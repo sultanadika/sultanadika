@@ -1,9 +1,8 @@
 ### Hi, I'm Sultan!
 
-🤔 Lazy coder that only code if needed </br>
+🤔 Lazy coder</br>
 🌱 Currently learning <b> Computer Science at Universitas Indonesia </b> </br>
 💬 Interested in stocks market and application</br>
-⚡Likes to game alot 
 
 
 
