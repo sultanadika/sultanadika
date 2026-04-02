@@ -1,4 +1,4 @@
-### Hi, I'm Sultan!
+### Hi, I'm Sultan!, i use this for school and college assignments mainly (also to save projects)
 
 
 
